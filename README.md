@@ -1,4 +1,4 @@
-# no-idea-what-i-am-doing
-really have no idea what i am doing
-       (just plz tell me what is fun on this web site)
-    
+     (just plz tell me what is fun on this web site)
+     (what do I do in the progects) 
+  so lost
+         
